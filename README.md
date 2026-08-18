@@ -315,3 +315,6 @@ At its core, it is a question of knowledge.
 Therefore, India needs to build an education system for future generations that respects useful knowledge from its traditions, learns from history, corrects present shortcomings, and builds the future on the foundations of science, technology, research, skills, equality, and human dignity.
 
 Because a strong nation begins with a strong education system.
+
+ Research and author
+ Sanjay Kurade
